@@ -1,8 +1,11 @@
 # Estagiario-Hacker-Caboclo
-Esta adaptação da musica Faroeste Caboclo conta a história real 
-de BlackCyber21 e como Surgiu o escandalo da Abin Paralela no Brasil.
+História real de BlackCyber21 2021-2025
+Devido ao transtorno de ansiedade,
+e por dominar a arte da musica e do hacking resolvi contar a história em forma de musica.
+Escolhi a Faroeste Caboclo do Lefiao Urbana como
+Base, porque é grande e tem trechos muito semelhantes. 
 
-*Estagiário Hacker Caboclo*  
+Estagiário Hacker Caboclo!
 
 Não tinha medo o estagiário 
 hackerinho  
@@ -248,6 +251,6 @@ pra Curitiba com o Diabo ter.
 
 Ele queria informar
 que o ex-presidente hackou 
-toda essa gente inflingiu a L..G...
+toda essa gente infringiu a L..G...
 
 ...P....D!
