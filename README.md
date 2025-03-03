@@ -2,13 +2,13 @@
 História real de BlackCyber21 2021-2025
 Devido ao transtorno de ansiedade,
 e por dominar a arte da musica e do hacking resolvi contar a história em forma de musica.
-Escolhi a Faroeste Caboclo do Lefiao Urbana como
+Escolhi a Faroeste Caboclo do Legiao Urbana como
 Base, porque é grande e tem trechos muito semelhantes. 
 
 Estagiário Hacker Caboclo!
 
 Não tinha medo o estagiário 
-hackerinho  
+hackerzinho  
 Era o que todos diziam 
 quando ele se perdeu  
 Deixou pra trás todo 
@@ -156,7 +156,7 @@ e tbm fdp do mais alto escalao
 E o Estagiário chegou fezer denúncia, 
 mas ate a delegada queria o embargar
 fez report pra agencia brasileira,
-e entao o demitiram no mesmo dia
+e o demitiram no mesmo dia
 
 O que acontece eh que um tal de Coffnix
 Blackhat de renome começou xingar, 
@@ -238,7 +238,7 @@ E tentativa Golpe não vingou
 E o povo nem pensava 
 que o Golpe 
 não foi dado
-pq o hacker 
+pq o hacker Estagiário
 soube o que fazer.
 
 E a Abin Paralela e o Exército 
@@ -252,5 +252,7 @@ pra Curitiba com o Diabo ter.
 Ele queria informar
 que o ex-presidente hackou 
 toda essa gente infringiu a L..G...
+
+...P....D!
 
 ...P....D!
