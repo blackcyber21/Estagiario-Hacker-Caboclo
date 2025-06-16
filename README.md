@@ -101,7 +101,7 @@ e ouvia as 7 horas no noticiario
 que sempre dizia que o sr. ministro ia ajudar,
 mas ele nao queria mais conversa 
 e dicidiu que como Paulo ele ia se virar
-elaborou mais uma vez plano em python 
+elaborou mais uma vez seu plano em Paitom 
 e sem ser certificado colocou pra minerar!
 
 E logo logo os hackudo da cidade 
@@ -132,9 +132,9 @@ Maria Lucia pra sempre vou te amar,
 e um filho com você eu quero ter.
 
 O tempo passa e um dia vem no zap 
-um senhor de alta classe com Bitcoin na mao
+um senhor de alta classe com quase um Bitcoin na mao
 e ele faz uma proposta indecorosa e diz 
-que espera uma resposta uma resposta do Efetivo.
+que espera uma resposta da proposta que ofertou pix de 1 milhão.
 Não boto bomba no Supremo Tribunal nem 
 no Palacio do Alvorada isso eu nao faco nao,
 e não protejo Capitao de 10 estrelas 
@@ -142,17 +142,17 @@ que fica com minuta no DF não!
 E eh melhor snhor sair do meu pais com 
 esse papo de rasgar a constituicao
 Mas antes de sair o velho disse 
-Talkey se vira com a Abin Paralela ai entao!
+Ta okey se vira com a Abin Paralela ai entao!
 
 Se vira com a Abin Paralela ai entao!
 Se vira com a Abin Paralela ai entao!
 Essas palavras ficaram na gravação, 
-do Aplle Watch que estava na minha mão.
+do Épou-Uatch que estava na minha mão.
 
 Nao eh que o Capitao estava certo o 
 Estagiário foi atacado por uma conspiração,
-0x7359 eram hackers
-e tbm fdp do mais alto escalao
+Zeo Xis Sete Três Cinco Nove eram hackers
+e também filhos da puta do mais alto escalao
 E o Estagiário chegou fezer denúncia, 
 mas ate a delegada queria o embargar
 fez report pra agencia brasileira,
@@ -160,19 +160,19 @@ e o demitiram no mesmo dia
 
 O que acontece eh que um tal de Coffnix
 Blackhat de renome começou xingar, 
-discuriram no gp da conferencia
+discuriram no grupo da conferencia
 onde Coffnix armado resolveu ameaçar, 
 mas o Efetivo tinha curso de OPSEC 
-e era logo pela DCSA e pediu
+e era logo pela D.C.S.A. e pediu
 para removerem o post 
 de sua foto que tinham postado lá.
-E Coffnix scriptkid sem vergonha 
-organizou o hackerspace 
+E Coffnix Script-Kid sem vergonha 
+organizou o Hacker-Space 
 e fez todos membros insultar
 ele jurava de pé junto 
 que era Hacker, 
 mas ao rodar seus códigos 
-tinha que debugar!
+tinha que Debugar!
 
 E o Estagiário era vigiado em casa,
 tinha spyware até no seu celular
@@ -218,9 +218,9 @@ e de tudo que estudou ateh ali
 leu Julian Assange e Snowden nessa dança 
 se Abin quer vir eu sei que não vou fugir.
 
-Ultimo google takeoff, quase offiline um file recebeu,
-foi Maria Lucia um dia zero o enviou,
-exploit que seu amigo Paulo escreveu.
+Ultimo google Teiqueoff, quase offiline um Arquivo recebeu,
+foi Maria Lucia um Dia Zero enviou,
+Exploit que seu amigo Paulo escreveu.
 
 Coffnix eu sou hacker 
 coisa que voce nao eh e nao
@@ -233,24 +233,24 @@ que ta cheia de sanção.
 Estagiário o exploit entao rodou 
 Ao PGR um relatório enviou, 
 e na PF um INQ se instaurou 
-E tentativa Golpe não vingou  
+E a tentativa de Golpe não vingou  
 
 E o povo nem pensava 
 que o Golpe 
 não foi dado
-pq o hacker Estagiário
+porque o hacker Estagiário
 soube o que fazer.
 
 E a Abin Paralela e o Exército 
 não acreditaram 
-no que viram na TV.
+no que viram na Tevê.
 
 E o Estagiario conseguiu 
 o que queria quando foi 
 pra Curitiba com o Diabo ter.
 
 Ele queria informar
-que o ex-presidente hackou 
+que o ex-presidente Raquiou 
 toda essa gente infringiu a L..G...
 
 ...P....D!
