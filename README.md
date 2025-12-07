@@ -1,6 +1,8 @@
 # Estagiario-Hacker-Caboclo
 Vídeo da musica: https://youtu.be/VyTVL6AHXpc?si=9_3HtozlNRkQ76ga
+
 BASEADO EM FATOS REAIS
+
 História real de BlackCyber21 2021-2025
 Devido a problemas,
 e por dominar a arte da musica e do hacking resolvi contar a história em forma de musica.
