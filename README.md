@@ -1,6 +1,8 @@
 # Estagiario-Hacker-Caboclo
+Vídeo da musica: https://youtu.be/VyTVL6AHXpc?si=9_3HtozlNRkQ76ga
+BASEADO EM FATOS REAIS
 História real de BlackCyber21 2021-2025
-Devido ao transtorno de ansiedade,
+Devido a problemas,
 e por dominar a arte da musica e do hacking resolvi contar a história em forma de musica.
 Escolhi a Faroeste Caboclo do Legiao Urbana como
 Base, porque é grande e tem trechos muito semelhantes. 
